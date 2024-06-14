@@ -1,3 +1,3 @@
 Boa pra nois,contato:breno.inacio2006@gmail.com, só chamar
 
-![](https://tenor.com/pt-BR/view/shrek-shrek-rizz-rizz-gif-11157824601050747846)
+![](https://media1.tenor.com/m/mtiOW6O-k8YAAAAd/shrek-shrek-rizz.gif)
